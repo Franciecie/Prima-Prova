@@ -8,7 +8,7 @@ Chiariamo però: imparare MODIFICO QUEST'ALTRA significa negare le proprie carat
 Prova a riflettere...
 AGGIUNGO QUESTA 
 Quante volte hai provato fastidio per il modo di parlare di un politico o un conferenzière che riuscivano a rèndere soporifero o irritante un discorso interessante?
-Quante volte ti sei sentito all'estero soltanto p
+Quante volte ti sei sentito all'estero soltanto puttana
 
 DIOCANE
 pappappairappappaaiii
