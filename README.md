@@ -7,3 +7,5 @@ Chiariamo però: imparare a parlare correttamente non significa negare le propri
 Prova a riflettere...
 Quante volte hai provato fastidio per il modo di parlare di un politico o un conferenzière che riuscivano a rèndere soporifero o irritante un discorso interessante?
 Quante volte ti sei sentito all'estero soltanto p
+
+pappappairappappaaiii
